@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on hardware digital projects pertaining to my domain
 - 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/k-a-gaganashree-2a7bb21ba/)
 
-
+![bighq](https://user-images.githubusercontent.com/82756709/194948128-d18ae055-337a-4c80-93c0-6e0d4a3c4078.jpeg)
  
 
 
